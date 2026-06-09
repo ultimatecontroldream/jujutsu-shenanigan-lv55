@@ -1,4 +1,4 @@
-#  
+#  ultimate Scripts for jujutsu shenanigans offers the most advanced jujutsu shenanigans Script, with god mode and no clip. Perfect for dominating any
 
 
 
